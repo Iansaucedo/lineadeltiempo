@@ -1,4 +1,3 @@
-# Mi interacción con la computación y tecnología
 
 # Mi interacción con la computación y tecnología
 
